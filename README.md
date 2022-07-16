@@ -7,4 +7,4 @@ As I like to say: "There are no absolutely useless people, everyone is good at s
 - How to reach me: my email Olezhuh@ya.ru
 - I will learn everything you will give to.
 - Will be a good member of the team.
-- I'm looking forward on seeing SCRUM and KANBAN on practise
+- I'm looking forward on seeing SCRUM and KANBAN on practiсe

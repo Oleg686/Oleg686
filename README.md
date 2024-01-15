@@ -1,4 +1,4 @@
-Hi there 👋, my name is Oleg Zhobitenko, I have just finished the 3rd year of the College of:
+Hi there 👋, my name is Oleg Zhobitenko, I have just finished the College of:
 "Computer Science and Programming at the Financial University under the Government of the Russian Federation"
 
 As I like to say: "There are no absolutely useless people, everyone is good at something"
